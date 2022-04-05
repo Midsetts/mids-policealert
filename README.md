@@ -40,3 +40,7 @@ Make whatever change you would like
 ![image](https://user-images.githubusercontent.com/100185331/161849813-4dc23135-e147-41e5-aec3-4e3ebd71d1b1.png)
 
 
+# Join my Discord for any issues!
+https://discord.gg/xWfRPGcN6Q
+
+
